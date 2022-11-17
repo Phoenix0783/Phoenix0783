@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with someone having a new idea and ready to grow 
 - 📫 How to reach me, links are below
 
-Instagram : https://www.instagram.com/ajayn_973/ &nbsp;
+Instagram : https://www.instagram.com/ajayn_973/ &nbsp; <br />
 LinkedIn : https://www.linkedin.com/in/ajay-nishad-66900223b/
 Facebook : https://www.facebook.com/profile.php?id=100081533913603
 Twitter : https://twitter.com/AjayNis07187979
