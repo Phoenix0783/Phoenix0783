@@ -8,7 +8,7 @@ You can check out my few of my work in visual links given below 👇🏼👇🏼
 ➡️ [***Instagram***](https://www.instagram.com/ajayn_973/) <br />
 ➡️ [***Behance***](https://www.behance.net/ajayN)  <br />
 
-Network with me on 👇🏼👇🏼👇<br />
+**Network** with me on 👇🏼👇🏼👇🏼👇🏼<br />
 ➡️ [***LinkedIn***](https://www.linkedin.com/in/ajay-nishad-66900223b/) <br />
 ➡️ [***Twitter***](https://twitter.com/AjayNis07187979) <br />
 ➡️ [***Medium***](https://medium.com/@nisajay518) <br />
