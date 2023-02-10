@@ -1,3 +1,5 @@
+![Github banner](https://user-images.githubusercontent.com/56187745/218173449-46637c18-331e-4f50-9786-41305c47d7f0.png)
+
 ## Hi There 👋
 
 I'm currently working as a Freelance Mobile application developer 😎. I make use of **Flutter & Dart** to create my applications. I am more into developing UI's of the application to make it more appealing and easy to use for the users. Making all of it possible with the help of UI design for my mobile applications using Figma & Photoshop.
