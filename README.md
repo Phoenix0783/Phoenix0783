@@ -4,6 +4,6 @@ I'm currently working as a Freelance Mobile application developer 😎. I make u
 
 For now I'm working on my new app for a start up idea, named **Chop** which is under design process i will update the details sooner, going to make sure it's amazing and available to you as soon as possible 😊😊😊.
 
-You can check out my few of my work in visual links given below 👇🏼👇🏼👇🏼
+You can check out my few of my work in visual links given below 👇🏼👇🏼👇🏼<br />
 ➡️ [***Instagram***](https://www.instagram.com/ajayn_973/) <br />
-➡️ [***Behance***] (https://www.behance.net/ajayN)  <br />
+➡️ [***Behance***](https://www.behance.net/ajayN)  <br />
