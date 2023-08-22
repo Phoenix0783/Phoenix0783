@@ -1,4 +1,4 @@
-![Github banner](https://user-images.githubusercontent.com/56187745/218173449-46637c18-331e-4f50-9786-41305c47d7f0.png)
+![Github banner](https://github.com/Phoenix0783/Phoenix0783/assets/56187745/b744efca-93a7-47f6-bf84-9a142ac8e9d0)
 
 ## Hi There 👋
 
