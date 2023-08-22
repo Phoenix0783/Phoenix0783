@@ -1,12 +1,12 @@
 ![Github banner](https://github.com/Phoenix0783/Phoenix0783/assets/56187745/b744efca-93a7-47f6-bf84-9a142ac8e9d0)
 
-## Hi There 👋
+## Hi there! Nice to see you here. 👋
 
-I'm currently working as a Freelance Mobile application developer 😎. I make use of **Flutter & Dart** to create my applications. I am more into developing UI's of the application to make it more appealing and easy to use for the users. Making all of it possible with the help of UI design for my mobile applications using Figma & Photoshop.
+I am Ajay, a mobile app developer, and I am also working as a content writer at OtakuKart. I like to develop mobile apps with Flutter and Dart and also love to explore new ideas, errors, and technologies. If you ever need an app, let's make one together.
 
-I would love to collab with other developers and work on new ideas.
+I also love to design new trending mobile app designs with the help of Figma and Photoshop, from zero to a well-designed app. I would love to collaborate with you and work on some new ideas.
 
-You can check out my few of my work in visual links given below 👇🏼👇🏼👇🏼<br />
+You can check out a few of my works at the links below. 👇🏼👇🏼👇🏼<br />
 ➡️ [***Instagram***](https://www.instagram.com/ajayn_973/) <br />
 ➡️ [***Behance***](https://www.behance.net/ajayN)  <br />
 
